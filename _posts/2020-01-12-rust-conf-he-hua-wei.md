@@ -28,7 +28,7 @@ image: assets/images/image (1).png
 
 > 5、 初见有些羞涩，相处后热心、细腻、活泼，始终特别有礼貌。
 
-![image.png](https://i.loli.net/2021/03/15/VuMIPcYakUJFLfB.png)
+![image.png](https://i.loli.net/2021/03/15/me8giJtljczx3kC.png)
 
 > 6、 笑起来脸颊有***小酒窝***，清新、可爱。眉宇间含着英气，小小的身体，蕴藏着强韧的力量感。挥棒和接球的样子～帅！
 
